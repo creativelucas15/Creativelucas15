@@ -6,9 +6,9 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on an Software for an Future Fighterjet 
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning to make great things
 - 👯 I’m looking to collaborate on creationcat
-- 🤔 I’m looking for help with ...
+- 🤔 I’m looking for help with many things
 - 💬 Ask me about planes and Tank Software
 - 📫 How to reach me: Discord: Lucas_20123
 - 😄 Pronouns: He/Him
